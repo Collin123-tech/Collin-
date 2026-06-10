@@ -1,9 +1,9 @@
-HI THERE IM COLLIN
+HI THERE IM COLLIN😉
 
 
 
 
-ABOUT ME⚫
+ABOUT ME⚫🚀
 
 *Im a student currently learning programming 
 
@@ -13,13 +13,13 @@ ABOUT ME⚫
 
 *looking for collaboration to expand my skills and cooperate with other web developer 
 
-GOAL🖌️
+GOAL🖌️🎯
 
 *Become flawless in coding
 *Learn and understand:Java,C++,HTML
 *Make the world better through tech
 
-CONTACT ME 📞
+CONTACT ME 📞🛜
 
 Email: collinmironga@gmail.com 
 Linkedln:Https:GitHub.cim/Collin
